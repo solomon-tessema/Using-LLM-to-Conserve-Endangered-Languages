@@ -53,7 +53,7 @@ Thousands of languages globally, including many in Ethiopia, face extinction due
 For inquiries, collaborations, or feedback, please contact:
 
 **Solomon T. Tessema**  
-Email: [Your Email Address]  
+Email: Solomon.tessema@outlook.com  
 
 ---
 
